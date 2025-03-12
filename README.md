@@ -1,12 +1,5 @@
-![Untitled2025_20250310201005](https://github.com/user-attachments/assets/bcf5aa00-3eee-4826-8c61-6f8c8473b4e2)
-
-ㅤㅤㅤৎ୭ㅤ𓈒ㅤminor ! artistㅤᶻz
-
-ㅤ៸៸ㅤinspo ✔ㅤ◜𖦹◞ㅤc+h freely ㅤ❜❜
-
-ㅤㅤㅤ⌣⌣ㅤ✧ㅤ⌣⌣ㅤ✧ㅤ⌣⌣
-
-
-ㅤㅤ𐂯ㅤ!ㅤlesbian , nonbinary ㅤ𓈒
-
-ㅤㅤ╰┈➤ㅤthey , sheㅤ♡
+I LOVE 007N7 ❤❤❤❤
+![cb4cf0074982707c51cb7f9431809d45](https://github.com/user-attachments/assets/9b38aa02-3a23-4aff-90b4-e93d99b33e4b)
+ㅤㅤminor . artist . animator
+ㅤㅤmultifandom!!!!
+ㅤㅤ;ㅤosc, tadc, md, blocktales, fnaf, lhg, forsaken, ramshackle, tales of zale, dw, etc yayayay
