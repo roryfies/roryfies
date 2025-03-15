@@ -8,18 +8,14 @@ haiii elliot, nyx, ken, vivian, kadi, remo, oyasumi, kiro, coni, yeong mi and mi
 
 I can act weird if i feel comfortable with you!! pls tell me if youre gettin uncomfortable so i can give you space/be careful w what im sayin,,
 
-ㅤ
 
 yes you can say sexual jokes but not about me, I have a very uncomfortable past!
 
-ㅤ
 
 kindly dni proships, homophobes, transphobes, the average dni criteria, 18+ (int with me first,,,)
 
-ㅤ
 
 dniuf pjsk fans, alnst fans, hazbin hotel fans
 
-ㅤ
 
 iwec knifecase/suitloon shippers, 2x haters, and 1x7n7 haters!! you guys make me feel invalid
