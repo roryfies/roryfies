@@ -1,4 +1,4 @@
-ㅤno heavy inspo ㅤcudcomf ㅤiwcuf
+ㅤno heavy inspo ㅤcudcomf ㅤiwcuf ㅤno resp - afk ㅤlate resp - semiafk/offtab
 
 ![Untitled2042_20250315224122](https://github.com/user-attachments/assets/01e5cb69-8b02-48eb-b617-c767fb400a5a)
 
