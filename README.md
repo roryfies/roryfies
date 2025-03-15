@@ -1,11 +1,5 @@
-I LOVE 007N7 ❤❤❤❤
+ㅤno heavy inspo ㅤcudcomf ㅤiwcuf
 
+![Untitled2042_20250315224122](https://github.com/user-attachments/assets/01e5cb69-8b02-48eb-b617-c767fb400a5a)
 
-![cb4cf0074982707c51cb7f9431809d45](https://github.com/user-attachments/assets/9b38aa02-3a23-4aff-90b4-e93d99b33e4b)
-
-
-ㅤㅤminor . artist . animator
-
-ㅤㅤmultifandom!!!!
-
-ㅤㅤ;ㅤosc, tadc, md, blocktales, fnaf, lhg, forsaken, ramshackle, tales of zale, dw, etc yayayay
+haiii elliot, nyx, ken, kadi, remo, oyasumi, kiro, coni, yeong mi and milo!!! ^o^
