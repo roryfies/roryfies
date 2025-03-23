@@ -1,21 +1,10 @@
-ㅤno heavy inspo ㅤcudcomf ㅤiwcuf ㅤno resp - afk ㅤlate resp - semiafk/offtab
-
-![Untitled2042_20250315224122](https://github.com/user-attachments/assets/01e5cb69-8b02-48eb-b617-c767fb400a5a)
-
-haiii elliot, nyx, ken, vivian, kadi, remo, oyasumi, kiro, coni, yeong mi and milo!!! ^o^
-
-ㅤ
-
-I can act weird if i feel comfortable with you!! pls tell me if youre gettin uncomfortable so i can give you space/be careful w what im sayin,,
+HHHIiiii!!!1 my namez r kaden / batzy ^_^ ya can call me whatever you like idrc ,, they/she prnsㅤ.ㅤautism adhd aasajdabjasj im nottt careful w my actions so pls ttell me if im doing anything wrongㅤㅤiwc especially if we just met/not really closeㅤㅤbasic dni criteria + darkshipperz , 18+ .. int w me first ayayaㅤㅤnov 24 is bday !!!! im STILL under 13 im sorry if im in your dni list,,ㅤㅤmain fandoms r osc, forsaken, fnaf, tadc, lhg and blocktalez :3ㅤㅤi love youy 007n7 and griefefr
 
 
-yes you can say sexual jokes but not about me, I have a very uncomfortable past!
+o yeaㅤi love drawing and my wife lelele tongue emoji
 
 
-kindly dni proships, homophobes, transphobes, the average dni criteria, 18+ (int with me first,,,)
+![forsaken](https://github.com/user-attachments/assets/be0a8523-904d-4ee7-a927-39b5aacba763)
 
 
-dniuf pjsk fans, alnst fans, hazbin hotel fans
-
-
-iwec knifecase/suitloon shippers, 2x haters, and 1x7n7 haters!! you guys make me feel invalid
+AAAAHHHHH!!!!!!!!!!! PLEAD LAST MAN STANDING!!!!!!!!!!!!!!!!!! AAAAAAAAAAHHHHJJJJJJJ!!!!!!!!!!!! I HATE FAMILYANGST !!!!!!!!!!!!! AAAAAAGHAHSGA!!!!!!!!!!!!
