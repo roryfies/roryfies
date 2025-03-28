@@ -6,6 +6,7 @@
 
 ㅤㅤ![c6b787d6](https://github.com/user-attachments/assets/cf287558-cf1d-4d04-a993-0198bc8c12a6)
 ㅤkadenㅤbatzyㅤkoda
+
 ㅤㅤㅤㅤthey ㅤsheㅤ![3f4f702d](https://github.com/user-attachments/assets/24664d6f-6122-4ab1-b9ba-4314ae6c14dd)
 
 ㅤint freely ; unless I have dni- in my name ! (I may act weird if we just met or if we aren't really close)
