@@ -1,26 +1,33 @@
-![Untitled2087_20250329000843](https://github.com/user-attachments/assets/b6bb4dd8-5af0-47b0-af2e-017ed6dd49cf)
+![downdiv](https://github.com/user-attachments/assets/258e7435-c4d9-426e-a926-645eb6cd0eb6)
 
 
-![Untitled2085_20250329000616](https://github.com/user-attachments/assets/3124bfb0-b38e-4be8-9cbf-9648c20e39c8)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![azureee](https://github.com/user-attachments/assets/80e4c601-e294-4bba-bf92-aa8ca2c2ae37)
 
 
-ㅤㅤ![c6b787d6](https://github.com/user-attachments/assets/cf287558-cf1d-4d04-a993-0198bc8c12a6)
-ㅤkadenㅤbatzyㅤkoda
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦ㅤㅤ.ㅤㅤkadenㅤbatzyㅤkodaㅤㅤㅤ![c6b787d6](https://github.com/user-attachments/assets/a71f87f9-ef29-4e71-8309-118ea595d2a4)
 
-ㅤㅤㅤㅤthey ㅤsheㅤ![3f4f702d](https://github.com/user-attachments/assets/24664d6f-6122-4ab1-b9ba-4314ae6c14dd)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⿸ㅤㅤtheyㅤsheㅤㅤꕀㅤㅤnonbinaryㅤㅤପ(๑ᴗ͈ˬᴗ͈)ଓ
 
-ㅤint freely ; unless I have dni- in my name ! (I may act weird if we just met or if we aren't really close)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ︶ ⊹ㅤㅤ![purple8](https://github.com/user-attachments/assets/14704d92-63f0-4a72-b25d-0ef3edd972e2)ㅤ![mono60](https://github.com/user-attachments/assets/96a90a5a-b96e-455a-8952-69afaa9a1425)ㅤ![purple15](https://github.com/user-attachments/assets/270f8795-65b0-48b9-9f6e-0b6f6aaf58ae)ㅤ![mono78](https://github.com/user-attachments/assets/ad618266-d7fb-4801-8412-5b2e4ac77426)
 
-ㅤkiss/cud is fine ^o^ js dont be a weirdo about it .
 
-ㅤ𝆺𝅥𝅮ㅤautism ㅤadhd 
 
-ㅤㅤminor ⚠︎
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┣▇▇▇═──ㅤㅤㅤminorㅤㅤaudhdㅤㅤ𝜗℘
 
-ㅤI am rude without even noticing it.. always interact with caution!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/1cdbea3a-d974-4a94-ab24-1a70f960c7a8)
 
-ㅤStrawpage + rentry in progress
 
-ㅤㅤ>ヮ<
 
-![Untitled2087_20250329000847](https://github.com/user-attachments/assets/07f591da-eb86-4e6c-82fb-b5e126bc7e89)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ︵︵ㅤㅤㅤiwc , I might get unintentionally rude sometimesㅤ!!
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI am also very sensitiveㅤㅤ⤸
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ═╪ㅤㅤmain fandomsㅤ;ㅤoscㅤforsakenㅤfnafㅤrodamrixㅤlhgㅤㅤ૮ ྀི◞͈ ˔ ◟͈ ྀིა
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰৯ㅤㅤbroken spawnㅤfireyㅤc00lkiddㅤhvykinㅤㅤ౨ৎ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/1cdbea3a-d974-4a94-ab24-1a70f960c7a8)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤstrawpageㅤ/ㅤrentry is a WIPㅤ,,
+
+![updiv](https://github.com/user-attachments/assets/8e104329-4ccd-4d90-9fe1-65086bd57287)
