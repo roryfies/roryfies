@@ -30,8 +30,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰৯ㅤㅤbroken spawnㅤfireyㅤc00lkiddㅤhvykinㅤㅤ౨ৎ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/f8419f3e-0459-46cf-a992-0acc88d5e7b0)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤstrawpageㅤ/ㅤrentry is a WIPㅤ,,
 
 ![updiv](https://github.com/user-attachments/assets/8e104329-4ccd-4d90-9fe1-65086bd57287)
