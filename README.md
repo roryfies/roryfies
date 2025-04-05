@@ -35,7 +35,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ═╪ㅤㅤmain fandomsㅤ;ㅤoscㅤforsakenㅤfnafㅤrodamrixㅤlhgㅤㅤ૮ ྀི◞͈ ˔ ◟͈ ྀིა
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰৯ㅤㅤbroken spawnㅤfireyㅤc00lkiddㅤhvykinㅤㅤ౨ৎ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰৯ㅤㅤbroken spawnㅤ007n7 hvykinㅤㅤ![bandaid](https://github.com/user-attachments/assets/aa8a51ac-a499-47b6-8873-a0ae7a6546ba)
+
 
 
 ![Untitled2121_20250404232332](https://github.com/user-attachments/assets/bc4847a3-1529-43fa-b6bd-b541877fc83b)
