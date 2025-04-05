@@ -6,11 +6,16 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦ㅤㅤ.ㅤㅤkadenㅤbatzyㅤkodaㅤㅤㅤ![c6b787d6](https://github.com/user-attachments/assets/a71f87f9-ef29-4e71-8309-118ea595d2a4)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦ㅤㅤ.ㅤㅤkadenㅤbatzyㅤkodaㅤㅤㅤ![swir;=l](https://github.com/user-attachments/assets/a22881cb-ec16-4970-953d-197bb05dd81c)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⿸ㅤㅤtheyㅤsheㅤㅤꕀㅤㅤnonbinaryㅤㅤପ(๑ᴗ͈ˬᴗ͈)ଓ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ︶ ⊹ㅤㅤ![purple8](https://github.com/user-attachments/assets/14704d92-63f0-4a72-b25d-0ef3edd972e2)ㅤ![mono60](https://github.com/user-attachments/assets/96a90a5a-b96e-455a-8952-69afaa9a1425)ㅤ![purple15](https://github.com/user-attachments/assets/270f8795-65b0-48b9-9f6e-0b6f6aaf58ae)ㅤ![mono78](https://github.com/user-attachments/assets/ad618266-d7fb-4801-8412-5b2e4ac77426)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![chainsaw](https://github.com/user-attachments/assets/e7d6c339-e0a9-48dc-ac82-8b14ffafe9ec)
+ㅤㅤtheyㅤsheㅤㅤꕀㅤㅤnonbinaryㅤㅤପ(๑ᴗ͈ˬᴗ͈)ଓ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ︶ ⊹ㅤㅤ![button1](https://github.com/user-attachments/assets/f9c1acb6-4ee9-445d-9fab-4829823aa4fc)ㅤ![warning](https://github.com/user-attachments/assets/6e56a5ff-9465-4619-b5d1-2f76f20f30d9)ㅤ![addicted](https://github.com/user-attachments/assets/9a6ff46d-39f7-4044-834f-2c24d88c269e)
+
+
+
 
 
 
