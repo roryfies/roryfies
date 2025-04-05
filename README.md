@@ -1,7 +1,9 @@
-![downdiv](https://github.com/user-attachments/assets/258e7435-c4d9-426e-a926-645eb6cd0eb6)
+![Untitled2121_20250404232332](https://github.com/user-attachments/assets/b15efc61-ca8f-40de-bd8a-8c17939305bb)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![azureee](https://github.com/user-attachments/assets/80e4c601-e294-4bba-bf92-aa8ca2c2ae37)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Untitled2135_20250405211806](https://github.com/user-attachments/assets/e3407a71-a2f3-48fb-8491-4975db6feda7)
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✦ㅤㅤ.ㅤㅤkadenㅤbatzyㅤkodaㅤㅤㅤ![c6b787d6](https://github.com/user-attachments/assets/a71f87f9-ef29-4e71-8309-118ea595d2a4)
@@ -31,4 +33,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰৯ㅤㅤbroken spawnㅤfireyㅤc00lkiddㅤhvykinㅤㅤ౨ৎ
 
 
-![updiv](https://github.com/user-attachments/assets/8e104329-4ccd-4d90-9fe1-65086bd57287)
+![Untitled2121_20250404232332](https://github.com/user-attachments/assets/bc4847a3-1529-43fa-b6bd-b541877fc83b)
+
