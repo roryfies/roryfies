@@ -1,4 +1,5 @@
-![Untitled2121_20250404232332](https://github.com/user-attachments/assets/b15efc61-ca8f-40de-bd8a-8c17939305bb)
+![divd](https://github.com/user-attachments/assets/09cc4a6e-0db9-4291-9897-5be7567270ad)
+
 
 
 
@@ -39,5 +40,5 @@
 
 
 
-![Untitled2121_20250404232332](https://github.com/user-attachments/assets/bc4847a3-1529-43fa-b6bd-b541877fc83b)
+![divd](https://github.com/user-attachments/assets/fa901d05-9c1c-4566-bc8b-2c33ccf2b2c6)
 
