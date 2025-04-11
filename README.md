@@ -26,7 +26,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟢ㅤㅤmostly offtab , w2i or js c*h if you wanna !ㅤ( ˶ᵔ ᵔ) ♡
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/1cdbea3a-d974-4a94-ab24-1a70f960c7a8)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![hhh](https://github.com/user-attachments/assets/2a4ba560-5585-4dc3-8503-111abfc6f313)
+
 
 
 
