@@ -1,3 +1,7 @@
 ![Untitled2231_20250430114121](https://github.com/user-attachments/assets/8c624df9-6a5c-490a-b6c6-d70eb510f4f9)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B0B4A8&width=435&lines=NOSOI;SEED;GROWTH;WAKEFULNESSES;SPREAD.)](https://git.io/typing-svg)ㅤㅤㅤㅤㅤㅤㅤㅤ[my drawings!!](https://cappyzero.straw.page/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B0B4A8&width=435&lines=NOSOI;SEED;GROWTH;WAKEFULNESSES;SPREAD.)](https://git.io/typing-svg)
+
+ㅤ
+ㅤ
+ㅤㅤㅤㅤcheck out my [drawings!!](https://cappyzero.straw.page/)
