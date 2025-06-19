@@ -11,10 +11,8 @@ non binaryㅤ𝒢ㅤpansexual ㅤ ۪۪‌
 </p>
 
 ![image](https://github.com/user-attachments/assets/662dd91b-51c2-4d82-b67d-b6e5c6d1ad21)
-ㅤ
-<p align="center">
-“ HEADSHOT BABY! BANG, BANG ㅤYOU'RE DEAD! ”
-</p>
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=500&color=6953C8&width=435&lines=Take+a+chance+with+me%2C+baby!)](https://git.io/typing-svg)
+ㅤ
 ㅤ
 ![image](https://github.com/user-attachments/assets/37530635-c0d0-45f5-b04e-3f5e970584dd)
