@@ -1,1 +1,3 @@
-<img width="1280" height="891" alt="Untitled2601_20250827131913" src="https://github.com/user-attachments/assets/4ea05786-d931-4a77-99f7-8acda100ec81" />
+im remaking
+
+<img width="794" height="700" alt="image" src="https://github.com/user-attachments/assets/ece45f22-e57c-42e9-b41c-1c646cbec628" />
